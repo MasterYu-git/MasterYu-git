@@ -1,4 +1,4 @@
-👀👀👀👀👀👀👀👀👀👀👀👀👀
+👀
 <!---
 - 👋 Hi, I’m @poyopeta
 - 👀 I’m interested in ...
